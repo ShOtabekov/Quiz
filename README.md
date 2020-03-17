@@ -1,6 +1,3 @@
-# Quiziytiytiyt updated from user
-regtergtergrghrghrgergrgewfegerfrerfef
-# Quiziytiytiyt updated from user
-sdwwdwdwdwdwdwdwd
-second day of project 7 lessons
-dadsedwsd
+16 of March project quiz created 
+17  of Mach started created components of project quiz 
+
